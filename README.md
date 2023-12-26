@@ -1,1 +1,1 @@
-Thanks  [the great work](https://www.youtube.com/watch?v=QJgjcnuQqNI&list=PLgAyVnrNJ96CqYdjZ8v9YjQvCBcK5PZ-V) tudui did!
+Thanks for [the great work](https://www.youtube.com/watch?v=QJgjcnuQqNI&list=PLgAyVnrNJ96CqYdjZ8v9YjQvCBcK5PZ-V) tudui did!
